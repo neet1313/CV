@@ -1,3 +1,0 @@
-# CV
-
-I love pizza
